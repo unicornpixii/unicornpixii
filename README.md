@@ -6,7 +6,7 @@
 
 <img width="90" height="80" alt="pusheen-pusheen-cat" src="https://github.com/user-attachments/assets/e90d8bf8-1d68-4157-a1dd-b076d10ab5e9" /> <img width= "200" height="90" alt="cat" src="https://github.com/user-attachments/assets/d86fc0fc-fb37-4e48-b798-e9b43a6a1f5f" /> <img width="140" height="90" alt="unicorn-horse" src="https://github.com/user-attachments/assets/1f802183-3f6d-4207-8cc5-9a39c21099d2" />
 
-  $${\color{#b29d94}𝙩𝙝𝙚ㅤ𝙪𝙣𝙞𝙫𝙚𝙧𝙨𝙚'𝙨,ㅤ𝙩𝙝𝙚ㅤ𝙜𝙖𝙡𝙖𝙭𝙮'𝙨ㅤ𝙝𝙚𝙧𝙚ㅤ𝙗𝙚𝙘𝙖𝙪𝙨𝙚ㅤ𝙞'𝙢ㅤ𝙝𝙚𝙧𝙚.}$$
+  $${\color{#b29d94}𝙩𝙝𝙚ㅤ𝙪𝙣𝙞𝙫𝙚𝙧𝙨𝙚'𝙨ㅤ𝙝𝙚𝙧𝙚ㅤ𝙗𝙚𝙘𝙖𝙪𝙨𝙚ㅤ𝙞'𝙢ㅤ𝙝𝙚𝙧𝙚,ㅤ𝙩𝙝𝙚ㅤ𝙜𝙖𝙡𝙖𝙭𝙮'𝙨ㅤ𝙝𝙚𝙧𝙚ㅤ𝙗𝙚𝙘𝙖𝙪𝙨𝙚ㅤ𝙞'𝙢ㅤ𝙝𝙚𝙧𝙚.}$$
   $${\color{#b29d94}ㅤ𝙚𝙣𝙙𝙡𝙚𝙨𝙨ㅤ𝙖𝙬𝙚𝙨𝙤𝙢𝙚𝙣𝙚𝙨𝙨,ㅤ𝙞'𝙢ㅤ𝙥𝙧𝙪𝙨𝙨𝙞𝙖ㅤ!ㅤ!ㅤ ᯓ★ }$$
 
  <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/1723b6c2-52c0-42b0-aca8-c6afdff9e753" />
