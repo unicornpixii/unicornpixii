@@ -17,7 +17,7 @@
 i really dont mind interaction n stuff i very much encourage it but im js awkward at first so...bear with me pols..but i do lov making new friends even thiugh im 2 scared to talk to any1 else most of the time (i like making myself seem super bold and extroverted n stuff online but im really not irl.,,,) 𝗶 𝗵𝗮𝘃 𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 𝗰𝗿𝗶𝘁𝗲𝗿𝗶𝗮 (𝗽𝗿𝗼/𝗱𝗮𝗿𝗸𝘀𝗵𝗶𝗽𝗽𝗲𝗿𝘀, 𝘇𝗼𝗼𝗽𝗵𝗶𝗹𝗲𝘀, 𝗽𝗿𝗲𝗱𝘀, 𝗿𝗮𝗰𝗶𝘀𝘁𝘀, 𝗵𝗼𝗺𝗼/𝘁𝗿𝗮𝗻𝘀𝗽𝗵𝗼𝗯𝗲𝘀, 𝗲𝘁𝗰) 𝗮𝗻𝗱 𝗼𝗳𝗰 𝗺𝗼𝗿𝗲
 
 
-# [strawpage !!](https://kittencatsmeow.straw.page)  pls look and perhaps signㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1136" height="36" alt="divider" src="https://github.com/user-attachments/assets/9f145537-efa6-4667-83b9-b8995a2faa45" />
+# [strawpage !!](https://kittencatsmeow.straw.page)  𝗶 𝘄𝗶𝗹𝗹 𝗮𝗱𝗱 𝗺𝗼𝗿𝗲 𝘀𝗼𝗰𝗶𝗮𝗹𝘀 𝗵𝗲𝗿𝗲,,,𝗺𝗮𝘆𝗯𝗲ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1136" height="36" alt="divider" src="https://github.com/user-attachments/assets/9f145537-efa6-4667-83b9-b8995a2faa45" />
 
 
 
