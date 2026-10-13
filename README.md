@@ -1,23 +1,28 @@
   # ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔   𝑖 ♡ 𝒇𝒊𝒏𝒍𝒂𝒏𝒅
   
   <div align="center">
-    ꒰  𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 𝘥𝘰𝘸𝘯 𝘣𝘦𝘭𝘰𝘸 ! ꒱ . . . . . 
+ 
   
 
-<img width="140" height="90" alt="78b0d1a8e86db7942c6f6d2dfe37d076" src="https://github.com/user-attachments/assets/5afd5810-8491-4c86-9506-d3bc8bbb3e5d" /> <img width="110" height="90" alt="pusheen-pusheen-cat" src="https://github.com/user-attachments/assets/e90d8bf8-1d68-4157-a1dd-b076d10ab5e9" /> <img width="200" height="90" alt="cat-white" src="https://github.com/user-attachments/assets/1b7671b0-995a-499d-9d03-8fb551ba53c6" />
+<img width="110" height="56" alt="d68efer-ec31b13b-013e-4fc3-b9dd-00ea960ed42a" src="https://github.com/user-attachments/assets/b143916b-f81b-4785-a6f4-5f214c34db7b" />
+<img width="120" height="99" alt="download (1)" src="https://github.com/user-attachments/assets/6a44d409-92c9-449e-a028-2a6c9dd4f8a7" /> <img width="110" height="99" alt="Fantagem_2" src="https://github.com/user-attachments/assets/6065389c-6ae9-49d4-8e38-b2c3d3377d54" /> <img width="110" height="72" alt="tumblr_inline_oa0z16TFtK1u30q3u_500" src="https://github.com/user-attachments/assets/bbb1a71a-7a5e-49ea-b4fc-507cae3ab257" /> <img width="110" height="56" alt="tumblr_31b6d9ba6df77c7a16cb721749b65741_e7595310_400" src="https://github.com/user-attachments/assets/95830b34-c16e-439e-bb84-a178df044cb8" /> 
+
 
 
   $${\color{#f2c2d4}𝒘𝒉𝒆𝒏ㅤ𝒊\'𝒎ㅤ𝒈𝒐𝒐𝒅,ㅤ𝒊\'𝒎ㅤ𝒗𝒆𝒓𝒚ㅤ𝒈𝒐𝒐𝒅.ㅤ𝒃𝒖𝒕ㅤ𝒘𝒉𝒆𝒏ㅤ𝒊\'𝒎ㅤ𝒃𝒂𝒅,ㅤ𝒊\'𝒎ㅤ𝒃𝒆𝒕𝒕𝒆𝒓. ♡ }$$
   
 
 
-<img width="600" height="500" alt="178381790172313996" src="https://github.com/user-attachments/assets/99aeb749-134a-4287-ba45-cf9e3b8e60f6" />
+<img width="640" height="348" alt="Hetalia - Finland ❤" src="https://github.com/user-attachments/assets/a668cfc1-a3db-4cd5-9405-77a7f66023c3" />
+
 
 
 i really dont mind interaction n stuff i very much encourage it but im js awkward at first so...bear with me pols..but i do lov making new friends even thiugh im 2 scared to talk to any1 else most of the time (i like making myself seem super bold and extroverted n stuff online but im really not irl.,,,) 𝗶 𝗵𝗮𝘃 𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 𝗰𝗿𝗶𝘁𝗲𝗿𝗶𝗮 (𝗽𝗿𝗼/𝗱𝗮𝗿𝗸𝘀𝗵𝗶𝗽𝗽𝗲𝗿𝘀, 𝘇𝗼𝗼𝗽𝗵𝗶𝗹𝗲𝘀, 𝗽𝗿𝗲𝗱𝘀, 𝗿𝗮𝗰𝗶𝘀𝘁𝘀, 𝗵𝗼𝗺𝗼/𝘁𝗿𝗮𝗻𝘀𝗽𝗵𝗼𝗯𝗲𝘀, 𝗲𝘁𝗰) 𝗮𝗻𝗱 𝗼𝗳𝗰 𝗺𝗼𝗿𝗲
 
 
-# [strawpage !!](https://kittencatsmeow.straw.page)  𝗶 𝘄𝗶𝗹𝗹 𝗮𝗱𝗱 𝗺𝗼𝗿𝗲 𝘀𝗼𝗰𝗶𝗮𝗹𝘀 𝗵𝗲𝗿𝗲,,,𝗺𝗮𝘆𝗯𝗲ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1136" height="36" alt="divider" src="https://github.com/user-attachments/assets/9f145537-efa6-4667-83b9-b8995a2faa45" />
+# [strawpage !!](https://kittencatsmeow.straw.page)  𝗶 𝘄𝗶𝗹𝗹 𝗮𝗱𝗱 𝗺𝗼𝗿𝗲 𝘀𝗼𝗰𝗶𝗮𝗹𝘀 𝗵𝗲𝗿𝗲,,,𝗺𝗮𝘆𝗯𝗲ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1136" height="36" alt="divider" src="https://github.com/user-attachments/assets/9f145537-efa6-4667-83b9-b8995a2faa45" />
+
 
 
 
@@ -29,6 +34,14 @@ i really dont mind interaction n stuff i very much encourage it but im js awkwar
 
 
 
+ㅤ<img width="1136" height="36" alt="divider" src="https://github.com/user-attachments/assets/9f145537-efa6-4667-83b9-b8995a2faa45" />
+
+
+
+
+
+
+<img width="110" height="56" alt="pusheen_stamp_by_kawaiimonstr_d6aw0at-fullview" src="https://github.com/user-attachments/assets/0fb34ce2-6292-48c4-ae41-5d99323a9e23" /><img width="110" height="56" alt="d4yt9xt-949448f1-a114-464e-81d2-010485f590cd" src="https://github.com/user-attachments/assets/82b9044e-10f9-4822-9f62-6c988716faa8" /> <img width="110" height="56" alt="daz15u3-6bada038-ee65-4944-8dfc-175211f4aebd" src="https://github.com/user-attachments/assets/1868d0ec-b121-4ec3-9ba8-ae09f160643d" /> <img width="110" height="56" alt="daxsrvl-7d8fabce-c54c-4920-8985-acf459acfcb4" src="https://github.com/user-attachments/assets/055c945a-05ab-49a6-aeae-e4adf39cafaa" /> <img width="110" height="56" alt="tumblr_517c6a40a64c7d8ddef2e12ab6ff0e5e_a8469392_100" src="https://github.com/user-attachments/assets/48122748-531f-46ca-89a5-aa26272a5573" /><img width="110" height="56" alt="d40dg89-f613460e-633d-4b86-b64d-5544020e388e" src="https://github.com/user-attachments/assets/5181a627-e0ac-43c4-b1db-3ec64c3ce8eb" /><img width="110" height="56" alt="tumblr_0e9615ec99c2d435ab951665f19ef5f6_13ab6604_100" src="https://github.com/user-attachments/assets/1fc36b04-dc4f-4acf-9f95-15bded23513f" />
 
 
 
@@ -36,7 +49,6 @@ i really dont mind interaction n stuff i very much encourage it but im js awkwar
 
 
 
-<img width="110" height="56" alt="k12" src="https://github.com/user-attachments/assets/120c7b0f-b3e4-4f8f-be3e-1af688a72c45" /> <img width="110" height="56" alt="prumano" src="https://github.com/user-attachments/assets/049bf300-7c3c-49e5-8404-8e6fc6785cf1"/>
 
 
 
@@ -79,6 +91,6 @@ also i only use this 4 ponytown so,,,
 
 
 
-<img width="300" height="300" alt="4d4099aa8413d143c5fc3d4c7e49649e" src="https://github.com/user-attachments/assets/e8c2c929-bb78-4af2-9f98-7779b7861ff4" /> 
-<img width="300" height="300" alt="850dc7cfdf6cfa6c4d99a583d180764f" src="https://github.com/user-attachments/assets/b5ed9469-fce6-4d43-af78-cce88f47cbca" />
+<img width="300" height="300" alt="finland appreciation - the world twinkle, episode 4" src="https://github.com/user-attachments/assets/0ad962e3-70dd-4805-9000-6ea4f8e6e10a" /> <img width="300" height="300" alt="Finland Hetalia Icon ☀️" src="https://github.com/user-attachments/assets/891dba14-808b-4e98-bcd3-4e2d7521a397" />
+
 
